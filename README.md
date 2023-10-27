@@ -15,4 +15,4 @@ Onofre Davila
 Este proyecto no necesita instalacion.
 
 ## Contratacion
-Si quieres contratame puedes escribirme a mi correo Onofrej14@gmail.com para consultas.
+Si quieres contratarme puedes escribirme a mi correo Onofrej14@gmail.com para consultas.
